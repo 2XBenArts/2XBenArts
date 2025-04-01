@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecurity
 - 🌱 I’m currently learning AI & Machine Learning
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me email:bensonkampamba66@gmail.com
+- 📫 How to reach me email: https://wa.me/+260964213879
 - 😄 Pronouns: Mr
 - ⚡ Fun fact: ...
 
